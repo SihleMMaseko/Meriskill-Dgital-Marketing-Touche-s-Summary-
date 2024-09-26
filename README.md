@@ -1,5 +1,6 @@
-# Meriskill-Dgital-Marketing-Touche-s-Summary-
-Welcome to Toutche! I'm thrilled to join the team and contribute my skills as a Digital Marketing Strategist. Toutche's company culture and values resonate deeply with me, and I'm excited to align my role with the company's mission.
+# Meriskill-Dgital-Marketing-Touche-s-Summary-Day 1
+Welcome to Toutche!
+ I'm thrilled to join the team and contribute my skills as a Digital Marketing Strategist. Toutche's company culture and values resonate deeply with me, and I'm excited to align my role with the company's mission.
 
 Toutche's pioneering spirit in the electric cycles industry, commitment to sustainability, and focus on quality and customer satisfaction are truly inspiring. As a Digital Marketing Specialist, my primary goal is to enhance Toutche's online presence, drive organic traffic, and improve search engine rankings through SEO and SCO strategies.
 
